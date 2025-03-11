@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ntk29072003@gmail.com**
 
-- 📄 Know about my experiences at [khangtoof.me](khangtoof.me)
+- 📄 Know about my experiences at [khangtoof.me](https://khangtoof.me/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
